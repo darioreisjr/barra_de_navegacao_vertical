@@ -1,1 +1,1 @@
-{\rtf1}
+BARRA DE NAVEGAÇÃO VERTICAL
